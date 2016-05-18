@@ -1,5 +1,11 @@
 # XCOMP
 !!!!!!!!!!!!!!!!!!!!!!!!!???!!!!!!!!!!!!!!!!DANK MEMES ONLY!!!!!!!!!!!!!!!111!!!!!!1!!!!!!!!!
+here come dankmemes2004 o shit waddup
+
+
+
+
+
 http://17cshinabery.wix.com/x-comp
 
 YO HOMIES DIS YA BOI DANKMEMES2004 WIT ANOTHER DANK PROJECT.
